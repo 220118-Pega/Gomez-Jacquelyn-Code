@@ -11,5 +11,5 @@ After graduation, I moved to South Korea for 4 years where I
 taught English as a second language in both middle and
 elementary school
 
-I love travel, photography (amateur), journaling, trying new food, 
-reading (books/manga/webtoons), watching tv, and exercising. 
+I've never worked in tech so I'm looking forward to breaking into
+the industry
